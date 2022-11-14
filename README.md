@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **kevin@swello.com**
 
-- ⚡ Fun fact **Sneakers Addict** **Disney Addict** **Star Wars Rebel** **Pokémon Trainer** **Harry Potter Fan**
+- ⚡ Fun fact **Sneakers Addict** && **Disney Addict** && **Star Wars Rebel** && **Pokémon Trainer** && **Harry Potter Fan**
 
 <h3 align="center">Connect with me:</h3>
 <p align="center">
